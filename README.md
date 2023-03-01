@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @sohyeonkim-0707
 - 📫 How to reach me hjthgus777@gmail.com
 
 <!---
