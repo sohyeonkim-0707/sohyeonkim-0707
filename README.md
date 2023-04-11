@@ -1,4 +1,4 @@
-- 📫 How to reach me hjthgus777@gmail.com
+📫 hjthgus777@gmail.com
 
 <!---
 sohyeonkim-0707/sohyeonkim-0707 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
